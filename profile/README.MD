@@ -1,1 +1,3 @@
-## This is Coalition against COVER CORP!!!
+## This is Coalition against COVER CORP and Hololive!!!
+
+I'm Creating This Coalition because this Company is Official ProRussian...alas and ah...
